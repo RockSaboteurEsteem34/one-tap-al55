@@ -1,4 +1,4 @@
-#  
+#  one tap vip Scripts is the best one tap Script, featuring auto-farm and god mode. Safe and powerful for all your needs.
 
 
 
